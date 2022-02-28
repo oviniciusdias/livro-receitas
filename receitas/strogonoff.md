@@ -1,4 +1,4 @@
-# Strogonoff de grango :chicken:
+# Strogonoff de Frango :chicken:
 
 ### Ingredientes 
 
